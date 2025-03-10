@@ -1,4 +1,4 @@
-👋 Hey, I'm @HimanshuCode24!
+👋 Hey, I'm @Himanshu
 
 👀 I'm all about travel, coding, and soaking up tech knowledge.
 
